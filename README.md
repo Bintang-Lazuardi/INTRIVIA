@@ -10,3 +10,6 @@ INTRIVIA menyajikan banyak insight, mulai dari bagian nonakademik sampai bagian 
 
 ## Kesan Pesan Cluster 12 Sejauh Ini 
 Cluster 12 membuat banyak pengalaman dan keseruan karena fasil yang seru yang membuat kita bisa mengobrol dan mengenal lebih dekat tanpa segan dan canggung.
+
+## Harapan Kuliah 
+Semoga saya dapat lulus secara tepat waktu dan juga membawa banyak bekal ataupun pengalaman yang saya terima di sini, saya juga ingin melakukan banyak hal disini agar mendapatkan banyak pengalaman.
